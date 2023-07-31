@@ -1,12 +1,15 @@
 # Klingenberg Bygg
 
-Vi lager boliger som tilfredstiller krav til lavt energiforbruk, godt innemiljø og universell tilgjengelighet. Gode løsninger med plan og energi for dagens og fremtidens behov. Vi tegner, prosjekterer og bygger din bolig i **Oslo**, **Follo** eller **Østfold**. Vi kan engasjere polske håndtverkere og kan bygger til rimeligere priser.
+Vi lager boliger som tilfredstiller krav til lavt energiforbruk, godt innemiljø og universell tilgjengelighet.
 
-Prosjektering skjer med høy grad av nøyaktighet. Oppmåling og kommunikasjon av løsninger med tegninger og beskrivelser som sikrer samsvar mellom ønsker, krav og løsninger.
+Vi tegner, prosjekterer og bygger din bolig i **Oslo**, **Follo** eller **Østfold**.
+
+Prosjektering skjer med høy grad av nøyaktighet. Oppmåling med tegninger og beskrivelser vil sikre samsvar mellom ønsket løsning og offentlige krav.
 
 Vi har spesielt kompetanse på:
-* Antikvarisk rehabilitering.
-* Arkitektonisk prosjektering med universal tilgjengelighet.
-* Prosjektering av bad etter våtromsnormen.
-* Energivurdering og valg av gunstige varmekilder.
+* Antikvarisk rehabilitering
+* Byggprosjektering
+* Arkitektonisk prosjektering med universell tilgjengelighet
+* Prosjektering av bad etter våtromsnormen
+* Energivurdering med valg av miljøriktige varmekilder og muligheter for enøk-bidrag
 
