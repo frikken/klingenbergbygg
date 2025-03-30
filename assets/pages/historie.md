@@ -3,7 +3,7 @@
 
 Fredrik Borch Lynghaug er utdannet sivilingenør «bygningsteknikk og arkitektur» fra NLH (UMB) i 2002 og har tilleggsutdannelse innen antikvarisk rehabilitering. Videre har han jobbet i mellomstore og større entreprenørfirmer i oslo, med offentlig bygningsforvaltning og i tilleg drevet Klingenberg Bygg siden mars 2007.
 
-Fredrik er nå fulltidsengasjert med offentlig prosjektledelse og tar bare unntaksvis på seg prosjekter i eget selskap.
+Fredrik er igjen selvstendig i eget selskap og forbereder ny oppstart gjennom sommeren 2025. Nytt nettsted kommer.
 
 ### Prosjektet Hogstvedtveien 23
 ![hogstvedt veien](/assets/images/hogstvedtveien.jpg)
