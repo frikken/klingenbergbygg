@@ -13,3 +13,4 @@ Vi har spesielt kompetanse på:
 * Prosjektering av bad etter våtromsnormen
 * Energivurdering med valg av miljøriktige varmekilder og muligheter for enøk-bidrag
 * Tilstandsvurdering etter NS for byggverk og vernede bygg.
+* Oppfølging av utførelse for byggherre med kvalitetssikring.
