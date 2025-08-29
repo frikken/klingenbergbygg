@@ -9,4 +9,4 @@
 | Tilbuds- og anbudshåndtering              ||
 | Prosjektledelse                           ||
 | Oppfølging av offentlig saksbehandling    ||
-| Sentral godkjenning                       ||
+| [Sentral godkjenning](https://sgregister.dibk.no/enterprises/976015711)                       ||
